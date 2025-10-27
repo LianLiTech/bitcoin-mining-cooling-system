@@ -48,8 +48,7 @@ The **M53/M63 series** continues this legacy by combining **powerful performance
 
 ## 📞 Contact & Support
 For orders, specifications, and integration support:  
-**Website:** [https://www.lianliwork.com](https://www.lianliwork.com/products_detail/143.html)  
-**Email:** sales1@lianliwork.com  
+**Website:** [https://www.lianliwork.com](https://www.lianliwork.com/products_detail/143.html) 
 
 
 ---
